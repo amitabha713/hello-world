@@ -4,4 +4,4 @@
 
 分支增加了内容
 
-![](http://img1.gtimg.com/rushidao/pics/hv1/92/13/1852/120429707.jpg)
+![弥勒菩萨](https://b-ssl.duitang.com/uploads/item/201208/20/20120820224902_nQYYX.jpeg)
